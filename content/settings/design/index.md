@@ -1,7 +1,7 @@
 +++
 headless = true
-icon = "/img/default-favicon.png"
-logo = "/img/default-logo.png"
-image = "/img/default-image.jpg"
+icon = "/media/img_1426.jpeg"
+logo = "/media/img_1426.jpeg"
+image = "/media/img_1426.jpeg"
 color = "#5d9fbd"
 +++
