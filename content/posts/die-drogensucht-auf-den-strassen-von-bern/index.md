@@ -49,7 +49,8 @@ Die 45-jährige Frau konnte durch die KODA ihren Drogenkonsum einschränken und 
 
 {{<box>}}
 
-Blindabbau, d. h. der Patient wird nicht genau über die Menge der jeweils verordneten Medikation informiert, um Fixierungen auf die jeweilige Dosis zu vermeiden.\
+Blindabbau, d. h. der Patient wird nicht genau über die Menge der jeweils verordneten Medikation informiert, um Fixierungen auf die jeweilige Dosis zu vermeiden.
+
 {{</box>}}
 
 **Unterstützung ist ein ausschlaggebender Aspekt in Richtung Abstinenz** 
