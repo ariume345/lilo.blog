@@ -11,7 +11,7 @@ Hunderte Drogenabhängige sind Tag und Nacht im Kocherpark und auf der Kleinen S
 
 {{</lead>}}
 
-![© KODA Bern ](unbenannt.png "Toiletten auf der Kleinen Schanze, Jahr 1990")
+![Toiletten auf der Kleinen Schanze, Jahr 1990, © KODA Bern ](unbenannt.png)
 
 **Ein normales Bild anfangs der 90er Jahre** – laute Sirenen sind zu hören in der Stadt Bern.                Ambulanzen nähern sich der Kleinen Schanze, Alltag für die Sanitäter*innen, jedem ist bewusst ist, was auf der Kleinen Schanze vor sich geht.
 
