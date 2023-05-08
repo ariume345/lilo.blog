@@ -1,7 +1,7 @@
 +++
 title = "Die Drogensucht auf den Strassen von Bern"
 date = "2023-05-08"
-draft = true
+draft = false
 pinned = false
 image = "unbenannt-kopie.jpg"
 +++
