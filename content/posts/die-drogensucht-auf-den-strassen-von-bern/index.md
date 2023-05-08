@@ -61,7 +61,7 @@ Die Behandlungsziele einer solchen Institution sind das Überleben zu sichern, d
 
 Eine weitere Organisation im Bereich der Schadensminderung ist die Anlaufstelle der Stiftung Contact. Sie bietet sterile Spritzen und Nadeln, Abgabe von Konsumationsmaterial, überwachte Konsumräume und medizinische Erstversorgung im Gegensatz zur KODA werden aber keine Betäubungsmittel abgegeben, sondern eigens mitgebrachte Substanzen konsumiert. Die Anlaufstelle sowie die KODA richten sich an alle über 18-Jährigen, die illegale Drogen konsumieren. 
 
-![](unbenannt.jpg897.jpg)
+![Gebrauchte Spritzen](unbenannt.jpg897.jpg)
 
 Im Verlaufe der Jahre hat sich vieles verändert, im medizinischen Bereich sowie auch im sozialen Bereich der Drogenabhängigen. Herr Dr. Brandt, Leitender Arzt der KODA erzählt, dass sich über die Jahre die Substanzen verändert haben, wie beispielsweise Heroin. Früher war es eine Substanz, die von vielen Leuten regelmässig konsumiert wurde. Heutzutage ist es eher weniger der Fall. Es werden mehr Stimulanzien konsumiert. Was sich auch verändert hat sind die Auswirkungen, sagte Dr. Brandt. Was viele erstaunt, ist, dass man vielen gar nicht ansieht, dass sie konsumieren, vor allem bei Jugendlichen. Er erzählt, dass mit der Suchterkrankung oftmals psychotische Grunderkrankungen einhergehen und durch die Behandlungen, welche die Betroffenen erhalten können, wird nicht nur die Sucht behandelt, sondern auch die Pathologie. 
 
