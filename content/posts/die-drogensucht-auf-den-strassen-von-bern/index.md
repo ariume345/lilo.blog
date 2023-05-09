@@ -13,7 +13,7 @@ Hunderte Drogenabhängige sind Tag und Nacht im Kocherpark und auf der Kleinen S
 
 ![Toiletten auf der Kleinen Schanze, Jahr 1990, © KODA Bern ](unbenannt.png)
 
-**Ein normales Bild anfangs der 90er Jahre** – laute Sirenen sind zu hören in der Stadt Bern.                Ambulanzen nähern sich der Kleinen Schanze, Alltag für die Sanitäter*innen, jedem ist bewusst ist, was auf der Kleinen Schanze vor sich geht.
+**Ein normales Bild anfangs der 90er Jahre** – laute Sirenen sind zu hören in der Stadt Bern.                Ambulanzen nähern sich der Kleinen Schanze, Alltag für die Sanitäter*innen, jedem ist bewusst, was auf der Kleinen Schanze vor sich geht.
 
 Chaos herrscht, die Kleine Schanze ist nicht mehr begehbar, nur noch die Suchtkranken sind dort zu finden, viele liegen herum, spritzen unter freiem Himmel, andere liegen bewusstlos da und im schlimmsten Fall haben sie eine Überdosis.                                                                                                                                                      Heroin war oft zu rein oder mit fremden Stoffen gestreckt, sodass lebensbedrohliche Überdosen zum Alltag gehörten, erzählte Frau Moos, eine Zeitzeugin. 
 
