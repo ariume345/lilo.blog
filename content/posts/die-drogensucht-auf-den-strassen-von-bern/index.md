@@ -49,7 +49,15 @@ Die 45-jährige Frau konnte durch die KODA ihren Drogenkonsum einschränken und 
 
 {{<box>}}
 
+<details>
+
+<summary> Blindabbau </summary>
+
+<br>
+
 Blindabbau, d. h. der Patient wird nicht genau über die Menge der jeweils verordneten Medikation informiert, um Fixierungen auf die jeweilige Dosis zu vermeiden.
+
+</details>
 
 {{</box>}}
 
